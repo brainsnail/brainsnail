@@ -1,1 +1,1 @@
-[![1000x420](https://user-images.githubusercontent.com/444193/88440833-fae74a00-cdc3-11ea-80df-1ca9500dd207.jpg "logan")](https://github.com/brainsnail)
+[![](https://user-images.githubusercontent.com/444193/94208671-3b744a00-fe7f-11ea-9b2b-0f8038cd9050.gif "logan")](https://github.com/brainsnail)
